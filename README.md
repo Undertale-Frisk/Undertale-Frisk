@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Undertale-Frisk
+- 👀 I’m interested in Role playing and Undertale.
+- 🌱 I’m currently learning stuff
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me Discord. Account is Undertale Frisk (HER!!!)#1628
